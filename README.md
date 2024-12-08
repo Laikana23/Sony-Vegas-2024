@@ -1,3 +1,5 @@
+![Preview Image](OIP.jpg)
+
 SonyVegas-2024 Welcome to the SonyVegas-2024 repository - your gateway to discovering Sony Vegas 2024 Cracked for free video editing! 🚀
 
 Overview Our repository provides you with the opportunity to enjoy advanced tools, a user-friendly interface, and zero subscription fees. Whether you're just starting your video editing journey or you're a seasoned pro, Sony Vegas 2024 promises to elevate your editing experience.
